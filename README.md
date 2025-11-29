@@ -1,1 +1,0 @@
-# el-martillo-ocr-Eloy_Verde
